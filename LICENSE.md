@@ -1,4 +1,4 @@
-
+best Scripts for murderers vs sheriffs 2 offers the most advanced murderers vs sheriffs 2 Script, with god mode and speed. Perfect for dominating any
 
 
 
